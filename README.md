@@ -38,7 +38,13 @@ pods that are not Running
 <img width="953" height="403" alt="image" src="https://github.com/user-attachments/assets/5ed9bbdd-cb42-4b74-b78a-e2f6d87485f5" />
 
 
+## lab 2
+
+![WhatsApp Image 2025-09-06 at 11 05 37_371bea71](https://github.com/user-attachments/assets/740ee8c6-bee8-4dd1-b995-6b5ad7de1ff5)
+
+
+![WhatsApp Image 2025-09-06 at 11 42 43_c0c02f44](https://github.com/user-attachments/assets/7f47a5bb-8c82-4492-b161-65db788b77f5)
 
 
 
-
+![WhatsApp Image 2025-09-06 at 11 49 42_2b392dad](https://github.com/user-attachments/assets/b858df12-b2b7-482b-9178-6dcfe91db8fb)
